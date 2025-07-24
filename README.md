@@ -1,3 +1,3 @@
 # info
 About me
-abe private number blocked  hai apke phone se
+to use unblock kaise kru
